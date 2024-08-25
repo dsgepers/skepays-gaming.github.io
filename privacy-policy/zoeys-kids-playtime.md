@@ -113,9 +113,7 @@ The Company will take all steps reasonably necessary to ensure that Your data is
 
 You have the right to delete or request that We assist in deleting the Personal Data that We have collected about You.
 
-Our Service may give You the ability to delete certain information about You from within the Service.
-
-You may update, amend, or delete Your information at any time by signing in to Your Account, if you have one, and visiting the account settings section that allows you to manage Your personal information. You may also contact Us to request access to, correct, or delete any personal information that You have provided to Us.
+To update, amend, or delete Your information, please contact Us via email at SkepaysGaming@gmail.com. We will assist with your request to access, correct, or delete any personal information that You have provided to Us.
 
 Please note, however, that We may need to retain certain information when we have a legal obligation or lawful basis to do so.
 
